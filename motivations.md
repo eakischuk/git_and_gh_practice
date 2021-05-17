@@ -1,0 +1,1 @@
+I want to be able to make a living and pursue my hobbies (all of which are expensive). After nearly dying in a car accident 3 years ago, my image of what constitutes a good life changed and I began to pursue supporting the things that make me happy, rather than forcing the things that make me happy to support me. 
